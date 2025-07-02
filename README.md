@@ -4,10 +4,11 @@
 <br>
 Chronic pain and poor sleep - I need my space sometimes but generally enjoy conversation.
 <br>
+I love my friends and will be usually seen sitting with them, I'm alone tho u can c+h.
+<br>
 
 <br>
 <br>
-
 
 <a href="https://eunlem.atabook.org">Atabook</a> ㅤㅤㅤㅤㅤ <a href="https://rentry.co/DegreesOfLewdityPlus">Degrees of Rentry</a> ㅤㅤㅤㅤㅤ <a href="https://sadlem0n.straw.page">wip Strawpage</a>
 <br>
