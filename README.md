@@ -1,5 +1,7 @@
 <div align="center">
-<img width="30%" src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
+"I never dared to dream that you and I would be able to live... a long and happy life together"
+<br>
+ <img width="30%" src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
 
 <br>
 Chronic pain + poor sleep, I am dying at times so energy levels vary a lot ⋆.
