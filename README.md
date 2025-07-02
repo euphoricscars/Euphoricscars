@@ -4,7 +4,7 @@
 <br>
 Chronic pain and poor sleep - I need my space sometimes but generally enjoy conversation.
 <br>
-I love my friends and will be usually seen sitting with them, I'm alone tho u can c+h.
+I love my friends and will be usually seen sitting with them, if I'm alone tho c+h.
 <br>
 
 <br>
