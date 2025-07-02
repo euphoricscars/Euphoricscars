@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
+<img width="50%" src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
 
 <br>
 Chronic pain and poor sleep - I need my space sometimes but generally enjoy conversation.
