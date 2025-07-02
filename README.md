@@ -1,6 +1,7 @@
 
 < div align="center">
-In pain with poor sleep - I need my space sometimes but generally enjoy conversation
+Chronic pain and poor sleep - I need my space sometimes but generally enjoy conversation.
 <br>
-Me, sero and alexs are NOT dating.
+Me, sero and alexs are NOT dating. I am their aplpha tho
 <br>
+</div>
