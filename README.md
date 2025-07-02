@@ -1,5 +1,5 @@
 <div align="center">
-"I never dared to dream that you and I would be able to live... a long and happy life together"
+"From the very beginning, one of us was destined to die... and that someone was going to be me"
 <br>
  <img width="30%" src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
 
