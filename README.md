@@ -8,7 +8,7 @@ I need my space sometimes but generally enjoy conversation ଳ
 <br>
 I love my friends and will be usually seen sitting with them, if I'm alone tho c+h.
 <br>
-
+ ࣪˖ ⊹ ──────────────────  -‘๑’- ───────────────────  ⊹ ࣪ ˖
 <br>
 <br>
 
