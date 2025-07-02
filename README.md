@@ -4,7 +4,7 @@
 <br>
 Chronic pain and poor sleep - I need my space sometimes but generally enjoy conversation.
 <br>
-I enjoy c+h if im alone
+
 <br>
 <br>
 
