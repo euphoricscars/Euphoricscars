@@ -1,5 +1,6 @@
 <div align="center">
-<i>"From the very beginning, one of us was destined to die... and that someone was going to be me"</i>
+𓆩✦𓆪
+ <i>"From the very beginning, one of us was destined to die... and that someone was going to be me"</i>
 <br>
  <img width="30%" src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
 
