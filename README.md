@@ -7,5 +7,5 @@ Chronic pain and poor sleep - I need my space sometimes but generally enjoy conv
 Me, sero and alexs are NOT dating. I am their aplpha tho
 <br>
 
-<a href="https://rentry.co/DegreesOfLewdityPlus">DoL Rentry</a>       <a href="https://eunlem.atabook.org">Atabook</a>
+<a href="https://rentry.co/DegreesOfLewdityPlus">Degrees of Rentry</a>       <a href="https://eunlem.atabook.org">Atabook</a>
 </div>
