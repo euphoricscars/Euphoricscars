@@ -15,4 +15,6 @@ I love my friends and will be usually seen sitting with them, if I'm alone tho c
 <br>
 !! Me, Sero and Alexs are NOT dating!! I am their big alpha tho ♡
 <br>
+<br>
+ᨐฅ
 </div>
