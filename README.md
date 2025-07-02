@@ -4,7 +4,7 @@
 <br>
 Chronic pain and poor sleep, I am sometimes dying sometimes so energy levels vary a lot.
 <br>
-ଳ I need my space sometimes but generally enjoy conversation.
+I need my space sometimes but generally enjoy conversation ଳ 
 <br>
 I love my friends and will be usually seen sitting with them, if I'm alone tho c+h.
 <br>
