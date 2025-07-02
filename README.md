@@ -2,7 +2,7 @@
 <img width="30%" src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
 
 <br>
-Chronic pain and poor sleep - I need my space sometimes but generally enjoy conversation.
+Chronic pain and poor sleep ଳ I need my space sometimes but generally enjoy conversation.
 <br>
 I love my friends and will be usually seen sitting with them, if I'm alone tho c+h.
 <br>
