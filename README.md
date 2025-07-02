@@ -2,7 +2,7 @@
 <img width="30%" src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
 
 <br>
-Chronic pain and poor sleep, I am dying at times so energy levels vary a lot ⋆.
+Chronic pain + poor sleep, I am dying at times so energy levels vary a lot ⋆.
 <br>
 I need my space sometimes but generally enjoy conversation 𓂃₊ ⊹
 <br>
