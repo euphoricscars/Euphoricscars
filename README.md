@@ -8,7 +8,7 @@
 <br>
 Chronic pain + poor sleep, I am dying at times so energy levels vary a lot ⋆.
 <br>
-Speaking in public chat is <i>draining</i> at times so i apologise if I'm quiet. 𓂃₊ ⊹
+Speaking with anyone but my friends is <i>draining</i> at times so i apologise if I'm quiet. 𓂃₊ ⊹
 <br>
 I love my friends and will be usually seen sitting with them, if I'm alone tho c+h.
 <br>
