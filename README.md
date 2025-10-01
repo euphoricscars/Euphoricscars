@@ -1,7 +1,7 @@
 <div align="center">
 𓆩✦𓆪
 <br>
-<i>"From the very beginning, one of us was destined to die... and that someone was going to be me"</i>
+<i>"You want a garden but you got a balcony And you're always lookin' for some company"</i>
 <br>
  <img width="30%" src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
 
