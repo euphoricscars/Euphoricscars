@@ -19,7 +19,7 @@ I love my friends and will be usually seen sitting with them, if I'm alone tho c
 <a href="https://eunlem.atabook.org">Atabook</a>ㅤ◇ㅤ<a href="https://rentry.co/DegreesOfLewdityPlus">DoL Rentry</a>ㅤ◇ㅤ<a href="https://sadlem0n.straw.page">Strawpage</a>
 <br>
 <br>
-!! Sero, Alexs and I are NOT dating!! I am their alpha tho ♡
+!! I hide temporarily if I'm overwhelmed !!
 <br>
 <br>
 ᨐฅ
