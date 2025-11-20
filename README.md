@@ -16,7 +16,7 @@ I love my friends and will be usually seen sitting with them, if I'm alone tho c
 <br>
 <br>
 
-<a href="https://eunlem.atabook.org">Atabook</a>ㅤ◇ㅤ<a href="https://rentry.co/DegreesOfLewdityPlus">DoL Rentry</a>ㅤ◇ㅤ<a href="https://mytowa.straw.page">Strawpage</a>
+<a href="https://towalover.atabook.org">Atabook</a>ㅤ◇ㅤ<a href="https://rentry.co/DegreesOfLewdityPlus">DoL Rentry</a>ㅤ◇ㅤ<a href="https://mytowa.straw.page">Strawpage</a>
 <br>
 <br>
 I hide temporarily if I'm overwhelmed or you cover me!!
