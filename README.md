@@ -17,7 +17,7 @@ formerly known as Mmlemonade. check straw for more info
 <a href="https://towalover.atabook.org">Atabook</a>ㅤ✧ㅤ<a href="https://rentry.co/DegreesOfLewdityPlus">DoL Rentry</a>ㅤ✧ㅤ<a href="https://mytowa.straw.page">Strawpage</a>
 <br>
 <br>
-I hide temporarily if I'm overwhelmed or you cover me!!
+I hide temporarily if I'm overwhelmed or you cover me
 <br>
 <br>
 ᨐฅ
