@@ -1,9 +1,9 @@
 <div align="center">
 𓆩✦𓆪
 <br>
-<i>"You want a garden but you got a balcony And you're always lookin' for some company"</i>
+<i>"A person's heart is very soft, like a handful of sand"</i>
 <br>
- <img width="30%" src="https://i.postimg.cc/8zvMtPtG/eiji-for-hub.png">
+ <img width="60%" src="https://i.postimg.cc/c4bBjmJP/a26ee38204190818eec55066cf4be9fa.jpg">
 
 <br>
 Chronic pain + poor sleep, I am dying at times so energy levels vary a lot.
