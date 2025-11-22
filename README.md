@@ -10,7 +10,7 @@ Chronic pain + poor sleep, I am dying at times so energy levels vary a lot
 <br>
 formerly known as Mmlemonade. check straw for more info
 <br>
- ࣪˖ ⊹ ──────────────  𓆩♱𓆪 ───────────────  ⊹ ࣪ ˖
+ ࣪˖ ⊹ ────────────  𓆩♱𓆪 ─────────────  ⊹ ࣪ ˖
 <br>
 <br>
 
