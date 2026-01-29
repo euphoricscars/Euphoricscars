@@ -15,6 +15,5 @@ chronic pain + poor sleep, I'm dying at times so energy levels vary a lot
 <a href="https://towalover.atabook.org">Atabook</a>ㅤ✧ㅤ<a href="https://rentry.co/DegreesOfLewdityPlus">DoL Rentry</a>ㅤ✧ㅤ<a href="https://rentry.co/mySoohyun">Checkmate</a>
 <br>
 <br>
-<br>
 ᨐฅ
 </div>
