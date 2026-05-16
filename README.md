@@ -1,9 +1,8 @@
 <div align="center">
 𓆩✦𓆪
 <br>
-<i>"A person's heart is very soft, like a handful of sand"</i>
-<br>
- <img width="60%" src="https://i.postimg.cc/c4bBjmJP/a26ee38204190818eec55066cf4be9fa.jpg">
+
+ <img width="60%" src="https://i.imgur.com/mqtbOQn.png">
 
 <br>
 chronic pain + poor sleep, I'm dying at times so energy levels vary a lot
