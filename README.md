@@ -1,9 +1,9 @@
 <div align="center">
 𓆩✦𓆪
 <br>
-
- <img width="60%" src="https://i.imgur.com/mqtbOQn.png">
-
+<br>
+ <img width="40%" src="https://i.imgur.com/mqtbOQn.png">
+<br>
 <br>
 chronic pain + poor sleep, I'm dying at times so energy levels vary a lot
 <br>
